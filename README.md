@@ -1,2 +1,0 @@
-# abhitech
-technial aditya group
